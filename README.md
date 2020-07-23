@@ -1,1 +1,1 @@
-Here are the complete details about the scholarship.
+The complete details about the scholarship.
