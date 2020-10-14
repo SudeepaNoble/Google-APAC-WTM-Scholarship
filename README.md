@@ -1,1 +1,1 @@
-The complete details about the scholarship.
+WTM Scholarship details
